@@ -1,5 +1,5 @@
-<h1 align="center">‧ 【 ✯ Starlights Team - Scraper ✰ 】 ‧
+<h1 align="center">‧ ༺🌹𝖲𝖮𝖥𝖨𝖠 - SCRAPER🌹༻ •
 </p>
 <p>
-        <img src= "https://telegra.ph/file/89fa6a3c8e9cedda6f5ca.jpg">
+        <img src= "https://telegra.ph/file/b599a653d13758536a6cf.jpg">
     </p>
